@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @Surendiran
+- 🎓🏛️ Msc. @ Pondicherry University
 - 👀 I’m interested in Computer and Electronics
 - 🌱 I’m currently learning All, which will not ends
 - 💞️ I’m looking for a learing partner
